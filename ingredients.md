@@ -1,0 +1,1 @@
+Egg yolks, sugar, Whole Milk, Heavy Cream, Vanilla Extract
